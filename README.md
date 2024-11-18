@@ -10,6 +10,7 @@
 💞️ I’m looking to collaborate on open-source projects and innovative tech ideas.  
 📫 How to reach me: [sanjanakumari11616@gmail.com]
     Linkedin - [www.linkedin.com/in/sanjana-kumari-a76231338]
+  
 😊 Pronouns: She/Her
 🎯 Goals:  
 •⁠  ⁠To become fluent in Spanish within a year.  
